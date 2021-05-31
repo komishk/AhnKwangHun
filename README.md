@@ -1,4 +1,4 @@
-### Math is rising my life.bb..👋
+### Math is rising my life.bbb..👋
 
 <!--
 **AhnKwangHun/AhnKwangHun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
